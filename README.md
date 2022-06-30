@@ -11,4 +11,3 @@
 ##### sources: 
 
 - Deviant Art, [jrfandub](https://www.deviantart.com/jrfandub): https://www.deviantart.com/jrfandub/art/The-Illusion-Sakura-Card-Manga-Version-HD-577037980
-- 
